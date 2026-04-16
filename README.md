@@ -1,2 +1,2 @@
 <div align="center">
-<img width="2048" height="2048" alt="tumblr_321ad6a6004f1f4f4464d0baf758b349_caa22209_2048" src="https://github.com/user-attachments/assets/5e378e41-391d-4b5f-9b30-21de9412171f" />
+<img width="2048" height="2048" alt="Untitled476_20260417040755" src="https://github.com/user-attachments/assets/2a3b2b5b-7cc2-4e8d-882a-7b34b64277ff" />
